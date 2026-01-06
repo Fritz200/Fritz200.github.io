@@ -12,7 +12,7 @@ Vi tror på:
 
 Vår ambition är att göra komplexa frågor begripliga och hjälpa dig att växa i din egen takt.
 
-![CoachInvestor – coaching och utveckling](images/welcome.jpg)
+
 
 ---
 
