@@ -1,1 +1,1 @@
-# coachinvestor.grithub.io
+# coachinvestor.github.io
