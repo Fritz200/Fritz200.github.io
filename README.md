@@ -12,6 +12,8 @@ Vi tror på:
 
 Vår ambition är att göra komplexa frågor begripliga och hjälpa dig att växa i din egen takt.
 
+![Sunnan juli 2025](https://github.com/user-attachments/assets/31386706-d750-4b99-97a2-c47ad238dfe1)
+
 
 
 ---
